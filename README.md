@@ -62,4 +62,4 @@ Full price control, flexible promotion
 
 独立控制价格，灵活推广
 
-📬 有意了解合作详情，欢迎私聊： 👉 t.me/reg_dma
+📬 有意了解合作详情，欢迎私聊： 👉 https://t.me/reg_dma
