@@ -5,6 +5,9 @@ CSGO2dma cheat group 【 DMA Game Cheat Reseller Recruitment】 🎮 Join a hot 
 
 ✅ CS2 ✅ PUBG ✅ APEX ✅ YuanGuang84 ✅ CrossFire (CF) & CFHD
 
+Software Purchase Link： https://www.xkun.cn//links/419566DC
+购买链接：https://www.xkun.cn//links/419566DC
+
 🔧 All based on dedicated DMA hardware
 
 Highly stable, low detection risk
